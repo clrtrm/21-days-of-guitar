@@ -17,3 +17,4 @@
 `may-31 (day 14)` plot twist chronic health issues are back, preferred not to risk a bad posture today.  
 `jun-1 (day 15)` 🤡 no  
 `jun-2 (day 16)` 🤡 (if anyone is reading this, no worries! conclusions will be drawn only at the end of the allocated timeframe!)
+`jun-3 (day 17)` 🤡
