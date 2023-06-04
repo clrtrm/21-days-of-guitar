@@ -16,5 +16,6 @@
 `may-30 (day 13)` 🤡 — it's 10:37pm, I'm too sleepy to sit properly and there's no way I'm playing in bed again, so I'm not playing at all >:{ Intending to wake up early tomorrow so I can play before commuting to the office!  
 `may-31 (day 14)` plot twist chronic health issues are back, preferred not to risk a bad posture today.  
 `jun-1 (day 15)` 🤡 no  
-`jun-2 (day 16)` 🤡 (if anyone is reading this, no worries! conclusions will be drawn only at the end of the allocated timeframe!)
-`jun-3 (day 17)` 🤡
+`jun-2 (day 16)` 🤡 (if anyone is reading this, no worries! conclusions will be drawn only at the end of the allocated timeframe!)  
+`jun-3 (day 17)` 🤡  
+`jun-4 (day 18)` still working on *Headstart* but the tutorial I've been following, despite being very clear and well produced, is way too hard for my level... Went back to doing some spider exercises. Considering again taking classes. I might finally schedule that call with the school I had in mind. Do it tomorrow?
